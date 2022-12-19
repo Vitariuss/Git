@@ -10,7 +10,7 @@ And suddenly there occured a rain. Poor cat was crying under the rain and his te
 
 *Chapter 3*
 
-Desperate cat heard a voice. Little girl was going to the cat to help him.
+Desperate cat heard a voice. Little girl was going to the cat to help him. 
 
 *Chapter 4*
 
