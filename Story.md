@@ -2,7 +2,7 @@
 
 *Chapter 1*
 
-Once upon a time there was a little cat. He was very hungry.
+Once upon a time there was a little cat. He was very hungry. 
 
 *Chapter 2*
 
